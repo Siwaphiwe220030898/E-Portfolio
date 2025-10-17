@@ -65,7 +65,7 @@ We had to prepare for potential job interviews by developing strong responses an
 My goal was to learn how to answer common interview questions confidently using the STAR method.  
 
 **Action:**  
-I prepared responses for behavioural questions, practiced speaking in front of a mirror, and recorded myself to evaluate my delivery. I also sought feedback from my lecturer and classmates.  
+I prepared responses for behavioural questions, practiced speaking in front of a mirror, and recorded myself to evaluate my delivery. I also sought feedback classmates.  
 
 **Result:**  
 I gained confidence in articulating my experiences and strengths. I can now respond professionally, using real-life examples to demonstrate my skills.
@@ -122,7 +122,7 @@ My LinkedIn profile now reflects my career goals and skills. I’ve connected wi
 ###  **Reflection (STAR Method)**
 
 **Situation:**  
-I participated in workshops on workplace ethics, teamwork, and professional behaviour.  
+I engaged in professional development sessions aimed at improving teamwork, ethics, and workplace behaviour. 
 
 **Task:**  
 I needed to understand how to conduct myself in a formal environment and work collaboratively with diverse colleagues.  
